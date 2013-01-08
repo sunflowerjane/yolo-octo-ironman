@@ -1,2 +1,7 @@
-yolo-octo-ironman
-=================
+Solution to the My Christmas Crisis
+
+
+As a savvy shopper and a busy mother, I’ve spent years watching the sales cycles and scanning the sale and clearance aisles online every month. National holidays are also great shopping opportunities that I wouldn’t miss. Recently Christmas has come and gone but the kids are still on break. They just got new toys but odds are, they will be bored. I have got to surf for new things to entertain them. But the Christmas gifts and dinner has broken my bank. So a frugal life begins with the help of coupons.
+ I checked different types of such websites. www.retailmenot.com is the largest in the United States. www.couponcabin.com also enjoys much popularity. But I finally choose a small website www.promodigg.com. I know you must be wondering why. Compared with the small one, www.retailmenot.com has more printable coupons and offers, but fewer coupon codes. In www.couponcabin.com, there are a great number of valid coupon codes, but you have to take effort to find the coupon code pages. www.promodigg.com shows its coupon codes directly on the front page. All you need is just to click on the provided link, shop at the merchant’s site as normal, and then enter the provided “coupon code” during checkout. The codes are easy to copy and paste. Thus www.promodigg.com saves me the same amount of money as the other two sites but with more choices, less time and less trouble. 
+www.promodigg.com finally helps me avoid tediousness for my kids at the cost of little money. 
+================
